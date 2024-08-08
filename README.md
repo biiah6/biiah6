@@ -1,2 +1,2 @@
 olá, bem-vindos ao meu perfil!
-sigam me no insta @beattriz_ 🛐🤍
+siga no insta @beattriz_ 🛐🤍
